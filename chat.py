@@ -1,1 +1,0 @@
-JoseLozanoGonzalez: "¿Cómo estás?"
